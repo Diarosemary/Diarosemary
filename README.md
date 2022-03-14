@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Diarosemary
-- 👀 I’m interested in music 
+- 👀 I’m interested in . 
 - 🌱 I’m currently learning coding 
 - 💞️ I’m looking to collaborate on ..  
 - 📫 How to reach me - dia#6991 (discord)
